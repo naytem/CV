@@ -1,2 +1,0 @@
-# CV
-Hoja de Vida
